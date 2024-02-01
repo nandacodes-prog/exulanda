@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... Music, design and minimalism
 - 🌱 I’m currently learning ... Programming
 - 📫 How to reach me ... Talk to me about music
-- 😄 Pronouns: She/He
+- 😄 Pronouns: Any pronouns
 - ⚡ Fun fact: Kirk Hammett invented dilfism
 
 <!---
